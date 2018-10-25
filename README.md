@@ -14,7 +14,8 @@ Installing a patch will help you increase FPS.
 
 
 The details of the game World War 3:
-texttexttextetxt
+Infinity ward and treyarch really need to look at how valve tell a story and create characters in a first person shooter because their stories are a hell of a lot more involving and gordon freeman a hell of a lot more interesting and sympathetic character despite never talking than any of these characters. Gary oldman, sam worthington, and ed harris do great jobs with their respective parts in single player. Players primarily take the role of alex mason, a man who is being held captive and interrogated for information concerning the ascension group. As with the new specialist classes, forcing players to think about when and why they heal seems to encourage a little more situational awareness.
+
 
 
 How To Increase FPS in World War 3
